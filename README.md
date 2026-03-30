@@ -7,3 +7,5 @@ heelllo
 - Pedro – gosto de tecnologia e café ☕
 
 - Zhyg0n - conta reserva👍
+
+- Kaua – gosto de tecnologia
