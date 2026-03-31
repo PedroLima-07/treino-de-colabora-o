@@ -9,3 +9,5 @@ heelllo
 - Zhyg0n - conta reserva👍
 
 - Kaua – gosto de tecnologia
+
+- Nathan - nao gosto de tecnologia! *_*
